@@ -1,7 +1,8 @@
 # About me
 ## Khoriah Indrihutami, MD
 
-![img1731144486488](https://github.com/user-attachments/assets/1accbc80-0b9c-4029-9df0-0e26e69d100d)
+![Picsart_24-12-16_10-23-50-416](https://github.com/user-attachments/assets/073fc0f8-fbb8-441d-936f-a3583fff3e75)
+
 
 Hi 👋
 
