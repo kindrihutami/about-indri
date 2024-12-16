@@ -6,7 +6,7 @@
 
 Hi 👋
 
-My name is Khoriah Indrihutami.
+My name is Khoriah Indrihutami!
 
 I hold a Medical Doctor (MD) degree from the Faculty of Medicine Universitas Padjadjaran, Indonesia.
 
