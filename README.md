@@ -16,7 +16,7 @@ Shortly after, I shifted role to Clinical Research Coordinator for a COVID-19 va
 
 My research interests include sexual and reproductive health, period poverty, WASH, and infectious diseases of poverty.
 
-I love 80s music 🎵 and trying out new foods.
+I love 80s music 🎵 and trying out new foods🍕🍤.
 
 ### **Connect with me:**
 [![](https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white)](mailto:kindrihutami@gmail.com)
